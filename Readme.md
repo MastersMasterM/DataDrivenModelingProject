@@ -1,1 +1,1 @@
-The Project Will be Updated Very Soon
+The Project Will be Updated Soon
